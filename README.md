@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @emily0912
+- 👋 Hii
 
-- 📫 How to reach me (! emily#0912 -- on Discord)
+- 📫 (! emily#0912 -- on Discord)
