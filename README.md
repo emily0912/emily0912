@@ -1,3 +1,3 @@
 - 👋 Hii
 
-- 📫 (! emily#0912 -- on Discord)
+- 📫 (! kangmin#0912 -- on Discord)
